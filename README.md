@@ -1,3 +1,3 @@
 # github-for-web-designers
 
-##[My offical website](www.farabegir.com)
+##[My offical website](http://www.farabegir.com)
