@@ -1,10 +1,4 @@
-Github for Web Designers
-========================
-
-Hi! Welcome to the companion reference to my lynda.com Github for Web Designers course. This reference also serves as the exercise files for my course, so you can download the exercise files from this repo as well.
-
-<p>(https://drmesbah.com/%d8%ac%d8%b1%d8%a7%d8%ad%db%8c-%d8%b2%db%8c%d8%a8%d8%a7%db%8c%db%8c-%d8%aa%d9%86%d8%a7%d8%b3%d9%84%db%8c-%d8%a8%d8%a7%d9%86%d9%88%d8%a7%d9%86)
-## [جراحی زیبایی تناسلی بانوان]</p>
+## [جراحی زیبایی تناسلی بانوان](https://drmesbah.com/%d8%ac%d8%b1%d8%a7%d8%ad%db%8c-%d8%b2%db%8c%d8%a8%d8%a7%db%8c%db%8c-%d8%aa%d9%86%d8%a7%d8%b3%d9%84%db%8c-%d8%a8%d8%a7%d9%86%d9%88%d8%a7%d9%86)
   <p>(https://drmesbah.com/%d9%87%d8%b2%db%8c%d9%86%d9%87-%d8%b9%d9%85%d9%84-%d8%b2%db%8c%d8%a8%d8%a7%db%8c%db%8c-%d9%88%d8%a7%da%98%d9%86)
 ## [هزینه عمل زیبایی واژن]</p>
   <p>(https://drmesbah.com/%d9%87%d8%b2%db%8c%d9%86%d9%87-%d9%84%db%8c%d8%b2%d8%b1-%d8%a8%d8%b1%d8%a7%db%8c-%d8%aa%d9%86%da%af%db%8c-%d9%88%d8%a7%da%98%d9%86)
