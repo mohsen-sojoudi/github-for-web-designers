@@ -105,3 +105,19 @@
 
 ## [سی تی اسکن ریه شبانه روزی](https://tehranmedicalimaging.com/%d8%b3%db%8c-%d8%aa%db%8c-%d8%a7%d8%b3%da%a9%d9%86-%d8%b1%db%8c%d9%87-%d8%b4%d8%a8%d8%a7%d9%86%d9%87-%d8%b1%d9%88%d8%b2%db%8c)
 
+## [هزینه نمونه برداری از کبد 1403](https://tehranmedicalimaging.com/%d9%87%d8%b2%db%8c%d9%86%d9%87-%d9%86%d9%85%d9%88%d9%86%d9%87-%d8%a8%d8%b1%d8%af%d8%a7%d8%b1%db%8c-%d8%a7%d8%b2-%da%a9%d8%a8%d8%af-1403)
+
+
+## [هزینه نمونه برداری تیروئید سال 1403](https://tehranmedicalimaging.com/%d9%87%d8%b2%db%8c%d9%86%d9%87-%d9%86%d9%85%d9%88%d9%86%d9%87-%d8%a8%d8%b1%d8%af%d8%a7%d8%b1%db%8c-%d8%aa%db%8c%d8%b1%d9%88%d8%a6%db%8c%d8%af-%d8%b3%d8%a7%d9%84-1403)
+  
+## [هزینه نمونه برداری از رحم 1403](https://tehranmedicalimaging.com/%d9%87%d8%b2%db%8c%d9%86%d9%87-%d9%86%d9%85%d9%88%d9%86%d9%87-%d8%a8%d8%b1%d8%af%d8%a7%d8%b1%db%8c-%d8%a7%d8%b2-%d8%b1%d8%ad%d9%85-1403)
+
+  
+## [آموزش خیاطی از ابتدا](https://azamtahanpoor.com/%d8%a2%d9%85%d9%88%d8%b2%d8%b4-%d8%ae%db%8c%d8%a7%d8%b7%db%8c-%d8%a7%d8%b2-%d8%a7%d8%a8%d8%aa%d8%af%d8%a7)
+
+## [آموزش دوخت مانتو برای مبتدی ها](https://azamtahanpoor.com/%d8%a2%d9%85%d9%88%d8%b2%d8%b4-%d8%af%d9%88%d8%ae%d8%aa-%d9%85%d8%a7%d9%86%d8%aa%d9%88-%d8%a8%d8%b1%d8%a7%db%8c-%d9%85%d8%a8%d8%aa%d8%af%db%8c-%d9%87%d8%a7)
+
+## [آموزش خیاطی از صفر](https://azamtahanpoor.com/%d8%a2%d9%85%d9%88%d8%b2%d8%b4-%d8%ae%db%8c%d8%a7%d8%b7%db%8c-%d8%a7%d8%b2-%d8%b5%d9%81%d8%b1)
+
+
+## [آموزش صفر تا صد خیاطی کودک](https://azamtahanpoor.com/%d8%a2%d9%85%d9%88%d8%b2%d8%b4-%d8%b5%d9%81%d8%b1-%d8%aa%d8%a7-%d8%b5%d8%af-%d8%ae%db%8c%d8%a7%d8%b7%db%8c-%da%a9%d9%88%d8%af%da%a9)
