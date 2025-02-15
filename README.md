@@ -3,7 +3,7 @@
 ## [هزینه عمل زیبایی واژن](https://drmesbah.com/%d9%87%d8%b2%db%8c%d9%86%d9%87-%d8%b9%d9%85%d9%84-%d8%b2%db%8c%d8%a8%d8%a7%db%8c%db%8c-%d9%88%d8%a7%da%98%d9%86)
 
 
-## [هزینه لیزر برای تنگی واژن]  (https://drmesbah.com/%d9%87%d8%b2%db%8c%d9%86%d9%87-%d9%84%db%8c%d8%b2%d8%b1-%d8%a8%d8%b1%d8%a7%db%8c-%d8%aa%d9%86%da%af%db%8c-%d9%88%d8%a7%da%98%d9%86)
+## [هزینه لیزر برای تنگی واژن](https://drmesbah.com/%d9%87%d8%b2%db%8c%d9%86%d9%87-%d9%84%db%8c%d8%b2%d8%b1-%d8%a8%d8%b1%d8%a7%db%8c-%d8%aa%d9%86%da%af%db%8c-%d9%88%d8%a7%da%98%d9%86)
 
 
 ## [فیلم آر اف واژینال](https://drmesbah.com/%d9%81%db%8c%d9%84%d9%85-%d8%a2%d8%b1-%d8%a7%d9%81-%d9%88%d8%a7%da%98%db%8c%d9%86%d8%a7%d9%84)
